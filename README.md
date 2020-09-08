@@ -1,1 +1,1 @@
-![Ben Berger](https://i.imgur.com/8p3gSQl.jpg)
+![Ben Berger](https://i.imgur.com/a/dcDttgV.png)
