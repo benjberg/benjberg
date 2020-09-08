@@ -1,1 +1,1 @@
-![Image of readmebackground](https://imgur.com/a/pDuySLz)
+[Imgur](https://imgur.com/shq5yrO)
