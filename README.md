@@ -1,1 +1,1 @@
-<blockquote class="imgur-embed-pub" lang="en" data-id="61K5KPQ"><a href="https://imgur.com/61K5KPQ">View post on imgur.com</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
+[Imgur](https://imgur.com/qwkZkK3)
